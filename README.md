@@ -1,3 +1,3 @@
-_**Sometimes you climb out of bed in the morning and you think, I'm not going to make it, but you laugh inside - remembering all the times you've felt that way.**_
+_**The journey of a thousand miles begins with one step.**_
 
-Charles Bukowski
+Lao Tzu
