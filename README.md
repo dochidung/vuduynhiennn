@@ -1,3 +1,3 @@
-_**Great things are done by a series of small things brought together.**_
+_**It is easy to sit up and take notice, What is difficult is getting up and taking action.**_
 
-Vincent Van Gogh
+Honore de Balzac
