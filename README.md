@@ -1,3 +1,3 @@
-_**Don't count the days; make the days count.**_
+_**What is the one sentence summary of how you change the world? Always work hard on something uncomfortably exciting!**_
 
-Mohamad Ali
+Larry Page
