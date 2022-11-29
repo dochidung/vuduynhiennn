@@ -1,3 +1,3 @@
-_**What you do speaks so loudly that I cannot hear what you say.**_
+_**Life is 10% what happens to us and 90% how we react to it.**_
 
-Ralph Waldo Emerson
+Dennis P. Kimbro
